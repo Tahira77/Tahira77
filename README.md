@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Tahira77
+- 👀 I’m interested in Data Science and to work in real time projects
+- 🌱 I’m currently Studying in Final year B.E CSE
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me : Tahira Begum.S| LinkedIn
+- 😄 Pronouns: ...Tahira
+- ⚡ Fun fact: Whatever you study no matters untill you practice daily.
